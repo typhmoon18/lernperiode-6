@@ -10,4 +10,11 @@ Mehr zu programmieren
 Was wäre ein geeignetes Projekt für diese LP6?
 Ich arbeite am Modul 320
 
+## 20.8.24 Reflexion
+Heute hab ich das HZ1 zu Ende gebracht. Ich hatte ein paar Schwierigkeiten, konnte esa ber zum Schluss dennoch verstehen
+
+## 27.8.24
+Ich werde am HZ2 vom modul 320 arbeiten.
+
+
 
