@@ -13,8 +13,16 @@ Ich arbeite am Modul 320
 ## 20.8.24 Reflexion
 Heute hab ich das HZ1 zu Ende gebracht. Ich hatte ein paar Schwierigkeiten, konnte esa ber zum Schluss dennoch verstehen
 
-## 27.8.24
-Ich werde am HZ2 vom modul 320 arbeiten.
+## 23.8.24
+Ich werde am HZ1 vom modul 320 arbeiten.
+Heue habe ich das Hz1 fast fertig geschafft. Ich habe leider ziemlich probleme bei diesem Modul mit dem Verständnis.
+Ich habe erledigt:
+4203
+4204
++ korrigiert und in der Gruppe besprochen.
+## 30.8.24
+Ich werde nächstes mal weiter am 320 arbeiten, spezifisch das HZ1 abschliessen. 
+
 
 
 
