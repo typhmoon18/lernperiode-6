@@ -21,7 +21,7 @@ Ich habe erledigt:
 4204
 + korrigiert und in der Gruppe besprochen.
 ## 30.8.24
-Ich werde nächstes mal weiter am 320 arbeiten, spezifisch das HZ1 abschliessen. 
+Ich werde nächstes mal weiter am 320 arbeiten, spezifisch das HZ1 abschliessen. Besprechung Mittagszeiten.
 
 
 
