@@ -22,6 +22,12 @@ Ich habe erledigt:
 + korrigiert und in der Gruppe besprochen.
 ## 30.8.24
 Ich werde nächstes mal weiter am 320 arbeiten, spezifisch das HZ1 abschliessen. Besprechung Mittagszeiten.
+reflexion:
+Ich habe heute weiter am Modul 320 gearbeitet. Gelöste aufträge:
+07,08
+Ich kann nun am Montag mit HZ2 beginnen.
+## 6.9.24
+Ich werde hoffentlich mit dem Prozentrechner beginnen und sehr weit vortschreiten können.
 
 
 
