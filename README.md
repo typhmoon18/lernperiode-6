@@ -28,6 +28,11 @@ Ich habe heute weiter am Modul 320 gearbeitet. Gelöste aufträge:
 Ich kann nun am Montag mit HZ2 beginnen.
 ## 6.9.24
 Ich werde hoffentlich mit dem Prozentrechner beginnen und sehr weit vortschreiten können.
+Reflexion:
+Ich musste heute noch die Arbeiten von Montag nachholen, da ich dort nicht so gut gearbeitet habe. 
+## 13.9.24
+Ich will gerne nochmal eine grosse repetition vom bisherigen Modul machen, um die nicht verstandenen Teile nachzuholen.
+
 
 
 
