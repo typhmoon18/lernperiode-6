@@ -33,6 +33,12 @@ Ich musste heute noch die Arbeiten von Montag nachholen, da ich dort nicht so gu
 ## 13.9.24
 Ich will gerne nochmal eine grosse repetition vom bisherigen Modul machen, um die nicht verstandenen Teile nachzuholen.
 
+Reflexion:
+Ich hatte noch probleme mit einem anderen Auftrag und somit habe ich erst beginnen können mit dem Prozentrechner
+
+## 20.9
+Ich würde gerne das HZ2 abschliessen.
+
 
 
 
