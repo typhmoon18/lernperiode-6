@@ -44,6 +44,8 @@ Ich konnte die Aufgabe 1 nicht fertigstellen und muss nun am Mittwoch nachfragen
 Insgesamt bin ich nun viel weiter und konnte viel Arbeitslast vom Diesntag und Mittwoch für die LB abgabe wegnehmen.
 ## 27.9
 Ich werde dann am Modul 320 HZ3 abreiten. sieher Reflexion für Fortschritt
+Reflexion:
+Ich bin heute leider nur wenig vorangekommen. Ich hatte probleme beim verständniss vom den neuen Sachen im Modul 320. Ich habe aber hilfe bei Tom Agget gesucht und die Probleme behoben.
 
 
 
