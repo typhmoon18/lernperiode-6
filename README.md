@@ -38,7 +38,12 @@ Ich hatte noch probleme mit einem anderen Auftrag und somit habe ich erst beginn
 
 ## 20.9
 Ich würde gerne das HZ2 abschliessen.
-
+Reflexion.
+Ich habe heute am Modul 322 gearbeitet. Die LB habe ich nun zur Hälfte abgeschlossen. Ich habe Aufgabe 3 und 4 fertig gemacht und aufgabe 5 begonnen.
+Ich konnte die Aufgabe 1 nicht fertigstellen und muss nun am Mittwoch nachfragen wie diese Funktioniert.
+Insgesamt bin ich nun viel weiter und konnte viel Arbeitslast vom Diesntag und Mittwoch für die LB abgabe wegnehmen.
+## 27.9
+Ich werde dann am Modul 320 HZ3 abreiten. sieher Reflexion für Fortschritt
 
 
 
